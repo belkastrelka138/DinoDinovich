@@ -1,7 +1,8 @@
-## Ohhhhhh misttyyyy maaaaowww of the bellkaaaa
+## It's beginning to look a lot like Dinoooo Dayyyy 
 
-# Third Moon, 2890 A.D
 
-![Delka](https://i.dailymail.co.uk/i/pix/2014/02/10/article-2556013-1B58DF4F00000578-488_964x661.jpg)
+# 04.20.2020 - The Day of The Dino
 
-I have encountered a suspicious creature in the wild. They might hail from the lost Dinovich region. 
+![Delka](https://www.google.com/search?q=t-rex+birthday&sxsrf=ALeKk01Z1Z1v048JdwmuY__qxv21pOyqyA:1587420423567&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjatdLzgfjoAhXHgXIEHRNmCXAQ_AUoAXoECBAQAw&biw=1680&bih=821#imgrc=GY6PIHGxVoiwlM)
+
+Dino Dinovich Turns 22 Today!! All Hail King Dino!!!
